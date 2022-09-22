@@ -5,6 +5,6 @@
 - 📫 How to reach me ...
 
 <!---
-RandieMae420/RandieMae420 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ShannonMayo@gmail.com 
+I was hacked. But I just got it back at
+10am Sept 22.
